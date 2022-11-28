@@ -1,1 +1,1 @@
-# junasugata
+# n/a
